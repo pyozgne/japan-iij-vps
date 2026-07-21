@@ -1,0 +1,1 @@
+# japan-iij-vps
